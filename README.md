@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @Project-Lucifer
+- 👋 Hi, I’m @Project-Luxy
 - 🌱 I’m currently learning "how to get a girlfriend" on youtube
